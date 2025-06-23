@@ -2,4 +2,4 @@
 
 
 
-WeLeap_Krithik_Jazzee2025_PitchVideo: https://www.youtube.com/watch?v=ggQWvSCUq3M
+WeLeap_Krithik_Jazzee2025_PitchVideo: https://youtu.be/0p5hBNDtz_I
